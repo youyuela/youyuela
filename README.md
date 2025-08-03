@@ -1,4 +1,4 @@
-<br>mygoogletrends.com
+<br>www.mygoogletrends.com
 <br>网站建设者
 <br>域名持有人
 <br>赛博员工雇佣主
