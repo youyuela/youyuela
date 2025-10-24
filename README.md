@@ -5,4 +5,4 @@
 <br>www.mygoogletrends.com
 <br>www.superexcuse.com
 <br>www.mbtishare.com
-<br>www.vibecodinghome.com
+<br>[www.vibecodinghome.com](https://superexcuse.com/)
